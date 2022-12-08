@@ -10,6 +10,10 @@ ___
 
 *Description* - Simple style but birds and animals looks very detailed. I liked most - showy owl, goshawk, ravens.
 
+**Interesting draw:** DC3 On the Beach in Iceland.
+
+**Artist:** Peter J. Jablokow.
+
 \* - in .pdf file
 
 ---
